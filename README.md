@@ -1,2 +1,2 @@
 # mama
-https://usu21.github.io/mama/
+https://dukeastaroth19.github.io/Mother/
